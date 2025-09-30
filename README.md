@@ -1,4 +1,5 @@
-# 📂 Wallpapers Collection  
+# 📂 Wallpapers Collection 
+> +1000 wallpapers 🌟
 ---
 
 ## 🌌 Preview
